@@ -1,3 +1,0 @@
-Hoang Nguyen
-
-Philidelphia Eagles
